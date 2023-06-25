@@ -40,4 +40,6 @@ sami.thakur2804@gmailcom
 
 ##PREVIEW
 
-![image](https://github.com/SAMI-THAKUR/LANDING_PAGE/assets/118300788/5e8a1a4e-f244-43c1-9dc9-984d8d98c9fb)
+![Screenshot 2023-06-24 181458](https://github.com/SAMI-THAKUR/LANDING_PAGE/assets/118300788/711f91b1-ebba-4df1-b79e-40e6326cdb73)
+
+https://github.com/SAMI-THAKUR/LANDING_PAGE/assets/118300788/63ff2aff-4166-4aaa-9f2c-f162a82163f0
